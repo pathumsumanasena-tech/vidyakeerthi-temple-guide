@@ -1,0 +1,1 @@
+# vidyakeerthi-temple-guide
